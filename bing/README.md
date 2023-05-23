@@ -26,4 +26,4 @@
 9. https://detail.vip.com/detail-1711628047-6919995575375412047.html
 10. https://detail.vip.com/detail-1711628047-6919473915214059855.html
 11. https://detail.vip.com/detail-1712225988-6920157998395183748.html
-12. https://detail.vip.com/detail-
+12. https://detail.vip.com/detail-1712225988-6920323146943419204.html
