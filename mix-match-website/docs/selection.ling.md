@@ -6,25 +6,33 @@ sidebar_position: 1
 
 ## 2023-05-23
 ## 本期品牌透视
-* 作为
+![](./pics/ling/20230523/topic.png)
+* 作为一名买手，我对FR2（Fxxking Rabbits）这个潮流品牌有深深的喜爱。这是一个源自日本的潮流品牌，由摄影师Ryo Ishikawa于2014年创立。FR2以其大胆的设计理念和极具辨识度的兔子LOGO而受到广泛关注。FR2的创意源于Ryo Ishikawa的摄影作品，他擅长通过服饰表达其个性化的视觉艺术。FR2的设计理念在于打破常规，突破潮流边界，将街头文化与奢华元素巧妙地融合在一起，表达出一种生活态度和生活方式。
+* FR2 Rabbits Uniform Tops 是该品牌的代表性单品之一，体现了该品牌的大胆创新和独特设计理念。FR2 Rabbits Uniform Tops 通常采用高质量的材料制作，提供舒适的穿着体验。设计上，这款单品往往以FR2的标志性兔子LOGO为主要视觉元素，有时还会结合摄影师Ryo Ishikawa的创意摄影作品，展现出独一无二的潮流风格。
 
-### 1. 
-* 
+### 1. FR2 Rabbits Uniform Tops
+![](./pics/ling/20230523/01.png)
+* 买手价 690RMB
 
-### 2.
-* 
+### 2. FR2 Rabbits Uniform Short Pants
+![](./pics/ling/20230523/02.png)
+* 买手价 850RMB
 
-### 3.
-* 
+### 3. FR2 Rabbits Uniform Short Pants
+![](./pics/ling/20230523/03.png)
+* 买手价 850RMB
 
-### 4.
-* 
+### 4. MLB TOUR TEAM TEE LOS ANGELES DODGERS
+![](./pics/ling/20230523/04.png)
+* 买手价 480RMB
 
-### 5.
-* 
+### 5. MLB TOUR TEAM TEE CHICAGO WHITE SOX
+![](./pics/ling/20230523/05.png)
+* 买手价 480RMB
 
-### 6.
-
+### 6. MLB TOUR TEAM TEE SAN FRANCISCO GIANTS
+![](./pics/ling/20230523/06.png)
+* 买手价 480RMB
 
 ## 2023-05-22
 ### 本期品牌透视
