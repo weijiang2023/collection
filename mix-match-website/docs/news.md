@@ -4,14 +4,31 @@ sidebar_position: 1
 ## 时尚快报 2023-05-23
 
 1. 
+ランウェイで服がバラバラに！フィレンツェ発エーヴィエーヴィエーヴィ（AVAVAV）が前代未聞の演出に込めた想いとラグジュアリーの再定義【若手デザイナー連載】
+在伦敦时装周的秀场上，模特儿们摔倒，服装解体崩溃，这一大胆的演出让AVAVAV品牌备受关注。设计师比特·卡尔森向我们讲述了这一想法背后的创作理念以及对于当代“奢华”概念的重新定义。
+https://www.vogue.co.jp/article/avavav-interview
 
 2. 
+ありがとう、我妻マリさん。思い出の企画をプレイバック。
+感谢你，我妻玛利。回顾回忆中的企划。
+https://www.vogue.co.jp/article/editors-pick-gen-arai-mari-azuma-1
 
 3. 
+バカンスシーズンに向けて！ トリー バーチ、旅をテーマにしたポップアップストアを開催
+为迎接度假季节！Tory Burch将举办以旅行为主题的快闪店。
+https://www.vogue.co.jp/article/2023-05-23-toryburch
 
 4. 
+2024年リゾート・オーストラリアン・ファッション・ウィークSNAP──季節の変わり目のコンフォートスタイル
+2024年澳大利亚度假时装周SNAP──过渡季节的舒适风格
+https://www.vogue.co.jp/gallery/us-vogue-the-best-street-style-photos-from-the-resort-2024-shows-in-sydney
 
 5. 
+「VOGUE Collection」の定番Tシャツに新色が登場。人気の完売カラーも再入荷！
+“VOGUE Collection”经典款T恤迎来新色登场。热门的售罄颜色也重新上市！
+https://www.vogue.co.jp/article/vogue-collection-2023ss-tshirts
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
 
 ## 时尚快报 2023-05-22
 
