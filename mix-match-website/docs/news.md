@@ -1,6 +1,31 @@
 ---
 sidebar_position: 1
 ---
+## 时尚快报 2023-05-24
+
+1. "A symbol of disenchanted youth: the history of skinny jeans from the 4th century to Gucci" - Skinny jeans, despite being considered a fashion disaster, still make up over 70% of men's denim sales. “一种失望的年轻人象征：从公元4世纪到Gucci的紧身牛仔裤的历史” - 尽管紧身牛仔裤被认为是时尚灾难，但仍占男性牛仔裤销量的70%以上。[Read more](https://www.theguardian.com/fashion/2023/may/23/skinny-jeans-fashion-history)
+
+2. "Fast fashion has spawned a mountain of leftover clothes in the Chilean desert that's so massive it can now be seen clearly from space" - The impact of fast fashion is visible from space with a massive pile of discarded clothes in the Chilean desert. 快速时尚在智利沙漠产生了一座巨大的剩余服装山，如今甚至从太空中也能清楚地看到它。- 快速时尚的影响从太空中可见，智利沙漠上有一座巨大的废弃服装堆积。 [Read more](https://news.yahoo.com/fast-fashion-spawned-mountain-leftover-042331031.html)
+
+3. "‘People care’: Shoe icon Jo Mercer on the rise of Aussie-made fashion" - Jo Mercer, known for her footwear, is now focused on building a business in sustainable clothing made onshore. “‘人们关注着’：鞋类偶像Jo Mercer谈澳大利亚时尚的崛起” - 以其鞋类产品而闻名的Jo Mercer现在致力于在本土打造可持续服装的业务。[Read more](https://www.smh.com.au/business/companies/people-care-shoe-icon-jo-mercer-on-the-rise-of-aussie-made-fashion-20230522-p5da6b.html?ref=rss&utm_medium=rss&utm_source=rss_feed)
+
+4. "Christian Kimber SS24 Redefines Modern Menswear" - Christian Kimber's SS24 collection is still holding real estate in our brains with its avant-garde cuts and futuristic interpretations of modern masculinity. “Christian Kimber SS24重新定义现代男装” - Christian Kimber的SS24系列凭借前卫的剪裁和对现代男性气质的未来主义诠释，在我们的脑海中仍然占据着一席之地。[Read more](https://manofmany.com/fashion/mens-fashion-advice/christian-kimber-ss-2024)
+
+5. ブルガリ×メアリー・カトランズ、自然界の煌めきに魅せられた限定バッグが誕生 布加迪×玛丽·卡特兰斯，诞生了一款限量版包袋，受自然界闪耀光辉的启发。[Read more](https://www.vogue.co.jp/article/2023-05-24-bulgari)
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+### 小玲点评
+从买手视角看，以下是我对其中某些文章的解读：
+
+1. 修身牛仔裤确实是一款无可取代的好单品，不仅因为它们舒适耐用，还因为它们极易搭配。无论你选择何种上装，无论是正式的衬衫，还是休闲的T恤，都能与之完美搭配。从季节角度看，修身牛仔裤四季皆宜，为你的衣橱提供无尽的可能性。
+
+2. 爱是我们对着装的感觉，它远超过浅薄的物欲。我倡导环保穿搭，不断追求新衣服只会带来短暂的满足感，但长久来看，精心选择和适当保养衣物才是关键。我们应该重视质量而非数量，尊重我们的衣物，让它们陪伴我们更长的时间。
+
+3. 一个成功的品牌，当他们的主营品类稳定后，就会开始考虑扩展其他单品。这样做不仅可以吸引更多的顾客，也可以使品牌文化得到更好的传播。AI原优舍就是以这种方式发展的，他们不断创新，用新的产品线扩展他们的品牌。
+
+4. 对于传统经典男装的妥善经营，我抱有深深的期待。纯正的男人味，往往蕴藏在这些经典款式中，它们既展现了男性的阳刚之气，又充满了绅士的韵味。希望品牌能够继续经营这些传统经典的男装，让每一位男士都能找到他们的完美装扮。
+
 ## 时尚快报 2023-05-23
 
 1. 

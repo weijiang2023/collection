@@ -71,12 +71,6 @@ const config = {
           },
           {
             type: 'doc',
-            docId: 'tgif',
-            position: 'left',
-            label: '现代汉服产品线',
-          },
-          {
-            type: 'doc',
             docId: 'selection.ling',
             position: 'left',
             label: '玲选',
@@ -86,6 +80,12 @@ const config = {
             docId: 'selection.bing',
             position: 'left',
             label: '冰选',
+          },
+          {
+            type: 'doc',
+            docId: 'tgif',
+            position: 'right',
+            label: '现代汉服原创设计',
           },
           {
             type: 'doc',
