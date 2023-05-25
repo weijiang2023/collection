@@ -4,6 +4,10 @@ sidebar_position: 1
 # 玲选
 ![](./pics/ling/front.cover.png)
 
+## 2023-05-25
+* 注：本期玲选以pdf文件形式发行，详见：
+
+
 ## 2023-05-24
 ## 本期品牌透视
 ![](./pics/ling/20230524/topic.png)
