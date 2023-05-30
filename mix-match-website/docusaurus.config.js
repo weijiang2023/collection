@@ -89,6 +89,12 @@ const config = {
           },
           {
             type: 'doc',
+            docId: 'polo',
+            position: 'right',
+            label: 'Polo',
+          },
+          {
+            type: 'doc',
             docId: 'about',
             position: 'right',
             label: '关于我们',

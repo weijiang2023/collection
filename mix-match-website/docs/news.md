@@ -1,6 +1,177 @@
 ---
 sidebar_position: 1
 ---
+## 时尚快报 2023-05-30
+1.
+どれを狙う？3月24日発売の人気コラボ「ユニクロ アンド ジェイ ダブリュー アンダーソン」2023年春夏新作の全アイテムをチェック！
+你打算选择哪一款？检查受欢迎的合作系列「Uniqlo and JW Anderson」2023年春夏新品的所有商品，将于3月24日发布。
+https://www.vogue.co.jp/fashion/article/2023-03-10-uniqlo-jw-anderson-23ss
+
+2.
+小松菜奈＆菅田将暉が夫婦揃ってシャネルのショーへ！BLACKPINKのジェニーやパク・ソジュンの姿も
+小松菜奈和菅田将暉夫妇一同出席了香奈儿的时装秀！BLACKPINK的Jennie和朴素俊也出现在现场。
+https://www.vogue.co.jp/fashion/article/chanel-23aw-frontrow-celeb
+
+3.
+フェンディ、新ジャパンブランドアンバサダーに川口春奈を起用！
+Fendi选择川口春奈作为其新的日本品牌大使！
+https://www.vogue.co.jp/fashion/article/2023-03-02-fendi-haruna-kawaguchi-ambassador
+
+4.
+トモ コイズミがマルチカラードレスでミラノを魅了！ドルチェ＆ガッバーナの支援でショーを披露
+小泉知美以多彩连衣裙迷倒了米兰！在杜嘉班纳的支持下展示了时装秀。
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-tomo-koizumu-dolce-gabbana
+
+5.
+ボッテガ・ヴェネタはイタリア芸術をクラフトで豊かに表現。三部作のラストコレクション
+Bottega Veneta以工艺手法丰富地表达意大利艺术。三部曲的最后系列。
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-bottega-veneta
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-05-29
+1. 
+タカヒロミヤシタザソロイスト.（TAKAHIROMIYASHITATheSoloist.）が打ち出す、ジェンダーフルイドな新規軸
+TAKAHIROMIYASHITA The Soloist. 推出了具有性别流动性的新方向。
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-takahiromiyashitathesoloist
+
+2. 
+ピリングス（PILLINGS）、穴があいたぼろぼろのニットに込めた希望
+Pillings（ピリングス）透过有洞破旧的针织品表达了希望。
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-pillings
+
+3. 
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-balenciaga
+巴黎世家（Balenciaga）放下"炒作"，专注于简约。以裁缝工艺专注于真诚的服装制作。
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-balenciaga
+
+4. 
+小松菜奈＆菅田将暉が夫婦揃ってシャネルのショーへ！BLACKPINKのジェニーやパク・ソジュンの姿も
+小松菜奈和菅田将暉夫妇一同参加香奈儿的时装秀！还有BLACKPINK的Jennie和朴宝剑的身影。
+https://www.vogue.co.jp/fashion/article/chanel-23aw-frontrow-celeb
+
+5. 
+ボッテガ・ヴェネタはイタリア芸術をクラフトで豊かに表現。三部作のラストコレクション
+Bottega Veneta通过工艺技巧丰富地展现了意大利艺术。这是三部曲系列的最终作品。
+https://www.vogue.co.jp/fashion/article/fall-2023-ready-to-wear-bottega-veneta
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-05-28
+1. 
+ヴェルサーチェとデュア・リパの初の共同制作は、バービーの世界観が広がるサマースタイル
+Versace和Dua Lipa的首次合作将扩展Barbie的世界观，呈现夏日风格。
+https://www.vogue.co.jp/article/versace-dua-lipa-pre-fall-2023
+
+2. 
+Stray Kidsのフィリックスやローラ、Kōki,などが来場！ ルイ・ヴィトン2024年クルーズショーのセレブSNAP
+Stray Kids的Felix、Lola、Kōki等人亲临现场！路易威登2024年度巡回展秀的名人快照。
+https://www.vogue.co.jp/article/louis-vuitton-cruise24-celeb-snap
+
+3. 
+クロエ、エレスとコラボしたエクスクルーシブなビーチコレクションを発売中
+克洛伊与Eres合作推出独家海滩系列，正在销售中。
+https://www.vogue.co.jp/article/2023-05-xx-chloe
+
+4. 
+ネットフリックスとラコステがコラボ！「ストレンジャー・ シングス 未知の世界」や「セックス・エデュケーション」など人気ドラマの世界観がウェアで楽しめる
+Netflix和Lacoste合作！可以在服装中享受《怪奇物语》和《性教育》等受欢迎剧集的世界观。
+https://www.vogue.co.jp/article/2023-04-12-lacoste-netflix
+
+5. 
+https://www.vogue.co.jp/article/2023-03-30-nike-joadan
+首家日本乔丹商店“乔丹飞行世界涩谷店”开业了。
+https://www.vogue.co.jp/article/2023-03-30-nike-joadan
+
+6. 
+深入时尚世界：与时尚买手小玲的独家专访
+https://www.algmon.com/docs/about
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-05-27
+1. 
+BLACKPINKの定番衣装になるまで。NYの異彩ブランド、エリア（AREA）のクリエイティブな思考法
+直到成为BLACKPINK的经典服装。纽约独特的品牌AREA的创意思维方式。
+https://www.vogue.co.jp/article/area-interview
+
+2. 
+ちょっとした外出もOK！快適なおしゃれを叶えるモードなワンマイルウェア８選
+即使是简单的外出也没问题！选择舒适时尚的一英里装备，实现时尚的舒适感。
+https://www.vogue.co.jp/article/weekly-best-find-lounge-wear
+
+3. 
+夏の光で足もとを輝かせて。クリスチャン ルブタンのネオンシューズ
+在夏日的光芒下让你的脚步闪耀。Christian Louboutin的霓虹鞋款。
+https://www.vogue.co.jp/fashion/article/fashion-mania-365-christian-louboutin-shoes-2023-05-27
+
+4. 
+メキシコへの情熱的な調べ、ディオール2024クルーズショウが導く鮮やかな旅。ヴォーグエディターが体験した、メキシコの魂と輝きの饗宴
+追寻热情的墨西哥旋律，迪奥2024年巡航系列秀引领我们踏上绚丽的旅程。Vogue编辑体验了墨西哥的灵魂与闪耀的盛宴。
+https://www.vogue.co.jp/article/emi-kameoka-diorcruise24
+
+5. 
+超軽量かつエレガント。ロエベのバッグ「パセオ」
+超轻盈且优雅。Loewe的手袋" Paseo"。
+https://www.vogue.co.jp/fashion/article/fashion-mania-365-loewe-bag-2023-05-26
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-05-26
+1. 
+ヴェルサーチェとデュア・リパの初の共同制作は、バービーの世界観が広がるサマースタイル
+Versace与Dua Lipa的首次合作，展现了Barbie的夏季风格。
+https://www.vogue.co.jp/article/versace-dua-lipa-pre-fall-2023
+
+2. 
+Stray Kidsのフィリックスやローラ、Kōki,などが来場！ ルイ・ヴィトン2024年クルーズショーのセレブSNAP
+Stray Kids的菲力克斯、罗拉、Kōki等人到场！路易威登2024年度巡航时装秀的名人快照。
+https://www.vogue.co.jp/article/louis-vuitton-cruise24-celeb-snap
+
+3. 
+BLACKPINKのJENNIEが、VOGUE JAPANの表紙に初登場！
+BLACKPINK的JENNIE首次登上VOGUE JAPAN的封面！
+https://www.vogue.co.jp/article/2023-july-cover-news-jennie-blackpink
+
+4. 
+aespa（エスパ）のNFTカプセルコレクションが発売中。メンバーのシグネチャーシンボルがアクセとして登場！
+aespa（에스파）의 NFT 캡슐 컬렉션이 발매 중입니다. 멤버들의 서명 심볼이 액세서리로 등장했습니다!
+https://www.vogue.co.jp/article/aespa-nft-collection-thedematerialised
+
+5. 
+バカンスシーズンに向けて！ トリー バーチ、旅をテーマにしたポップアップストアを開催
+为迎接度假季节！Tory Burch将举办以旅行为主题的弹出商店。
+https://www.vogue.co.jp/article/2023-05-23-toryburch
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-05-25
+1. "Revisiting the ’90s Supermodel Touted as a 'Real-Life Barbie'"
+   "重温被誉为“真实版芭比”的90年代超模"
+   https://www.vogue.com/slideshow/karen-mulder-real-life-barbie-runway-model
+   
+2. "Declan McKenna on His Big Return and Starman-Inspired Wardrobe"
+   "Declan McKenna谈论他的大回归和受Starman启发的衣柜"
+   https://www.vogue.com/article/declan-mckenna-the-big-return-tour-2023
+   
+3. "Jennifer Lawrence Loves This Grown-Up Answer to City Shorts"
+   "詹妮弗·劳伦斯喜欢这种成熟的城市短裤解答"
+   https://www.vogue.com/article/jennifer-lawrence-loves-this-grown-up-answer-to-city-shorts
+   
+4. "Margot Robbie’s Life in Looks Covers Her Iconic Red Carpet Looks and Movie Roles"
+   "玛格特·罗比的时尚生活覆盖了她标志性的红地毯造型和电影角色"
+   https://www.vogue.com/article/life-in-looks-margot-robbie
+   
+5. "Irina Shayk Delivers the Most Literal Take on the Lingerie Trend"
+   "伊琳娜·莎伊克对内衣趋势的最直接解读"
+   https://www.vogue.com/article/irina-shayk-delivers-the-most-literal-take-on-the-lingerie-trend
+   
+6. "Blackpink’s Jennie Kim Stole the Show at The Idol Premiere in Bridal Chanel"
+   "Blackpink的Jennie Kim在《偶像》首映礼上身穿Chanel婚纱抢尽风头"
+   https://www.vogue.co.uk/article/jennie-kim-chanel-cannes-film-festival#:~:text=With%20plenty%20of%20buzz%20and,angelic%20midi%2Ddress%20by%20Chanel.
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
 ## 时尚快报 2023-05-24
 
 1. "A symbol of disenchanted youth: the history of skinny jeans from the 4th century to Gucci" - Skinny jeans, despite being considered a fashion disaster, still make up over 70% of men's denim sales. “一种失望的年轻人象征：从公元4世纪到Gucci的紧身牛仔裤的历史” - 尽管紧身牛仔裤被认为是时尚灾难，但仍占男性牛仔裤销量的70%以上。[Read more](https://www.theguardian.com/fashion/2023/may/23/skinny-jeans-fashion-history)
