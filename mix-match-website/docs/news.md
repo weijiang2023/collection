@@ -1,6 +1,104 @@
 ---
 sidebar_position: 1
 ---
+## 时尚快报 2023-06-04
+1. 
+LACOSTE宣布格里戈尔·迪米特洛夫为新晋品牌大使
+https://www.vogue.com.cn/fashion/brand_news/news_18349dee4c93e27d.html
+
+2. 
+NET-A-PORTER带你穿越时光，跟随Melody抵达焕彩夏日
+https://www.vogue.com.cn/fashion/brand_news/news_175454e6e510e97e.html
+
+3. 
+alice + olivia 2023夏日系列，闪耀一“夏”浪漫写意
+https://www.vogue.com.cn/fashion/brand_news/news_154328cf2da20453.html
+
+4. 
+CONVERSE发布全新 One Star Pro 端午系列产品
+https://www.vogue.com.cn/fashion/brand_news/news_104g39585691d1b5.html
+
+5. 
+華人青年全球首店正式开业
+https://www.vogue.com.cn/fashion/brand_news/news_17443a5141d3e676.html
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-06-03
+1. 
+VOGUE World将占领西区，为伦敦时装周揭幕
+https://www.vogue.com.cn/fashion/industry/news_1724696dfca17093.html
+
+2. 
+现在最美的裙子，都是开出3D花的
+https://www.vogue.com.cn/fashion/vogue/news_17g4a5324f9a9058.html
+
+3. 
+今年夏天 跟着VOGUE选长裙 时髦优雅显气质
+https://www.vogue.com.cn/fashion/vogue/news_1543c0fd7aa2c254.html
+
+4. 
+在DIOR新系列中遇见Frida Kahlo
+https://www.vogue.com.cn/fashion/industry/news_115g6d801d162977.html
+
+5. 
+夏日日巧妙露肤必备“镂空/挖空装”，赶紧收下这份辣妹攻略
+https://www.vogue.com.cn/fashion/street_chic/news_16330b1e1b7ac1b5.html
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-06-02
+1. 
+alexanderwang发布2023早秋系列广告大片
+https://www.vogue.com.cn/fashion/brand_news/news_114g3d2d4ace9e12.html
+
+2. 
+献礼六一，FILA KIDS发布「Born Free Born Brave」主题短片，致敬自由无畏童心
+https://www.vogue.com.cn/fashion/brand_news/news_1915da408ba738b8.html
+
+3. 
+经典的演进：Mulberry 呈现全新主打包袋系列，庆祝 Bayswater 诞生 20 周年
+https://www.vogue.com.cn/fashion/brand_news/news_11g191a73a5b76b6.html
+
+4. 
+美国歌手Beyoncé演绎Alexander McQueen亚历山大麦昆高级时装
+https://www.vogue.com.cn/fashion/brand_news/news_101gd61f78c5dbd9.html
+
+5. 
+路易威登GO-14手袋
+https://www.vogue.com.cn/fashion/brand_news/news_18246e7308217ab5.html
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
+## 时尚快报 2023-05-31
+
+1.
+息をのむほど美しい！ ミュージアム級のタイムピース。
+令人叹为观止的美丽！博物馆级的设计。
+https://www.vogue.co.jp/article/best-watch-2023-3
+
+2.
+デイリー使いの相棒には美フェイスの腕時計をチョイス。
+选择一款拥有美丽外观的手表作为日常的好伴侣。
+https://www.vogue.co.jp/article/best-watch-2023-2
+
+3.
+２人の王妃からインスパイア。「ブレゲ」のアフタヌーンティを心ゆくまで堪能
+从两位王后获得灵感，尽情享受"布雷格"的下午茶！
+https://www.vogue.co.jp/article/kyoko-osawa-breguet-afternoon-tea
+
+4.
+バレンシアガ 東急プラザ銀座が6月1日に期間限定でオープン
+巴黎世家东急银座店将于6月1日限时开放。
+https://www.vogue.co.jp/article/2023-05-31-balenciaga-tokyu-plaza-ginza
+
+5.
+ルイ・ヴィトン、イタリアのベッラ島でショーを開催。水中から庭園の世界へ移る人魚を表現
+路易威登在意大利贝拉岛举办时装秀。以从水中到花园世界中的人鱼为表现。
+https://www.vogue.co.jp/article/louis-vuitton-2024-cruise
+
+每日时尚快报，用日本小众给中国型男淑女们传递关爱与时尚触觉。
+
 ## 时尚快报 2023-05-30
 1.
 どれを狙う？3月24日発売の人気コラボ「ユニクロ アンド ジェイ ダブリュー アンダーソン」2023年春夏新作の全アイテムをチェック！
